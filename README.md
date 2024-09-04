@@ -7,11 +7,14 @@
                           
 ˏˋ°•*⁀➷⇢ ˗ˏˋ THIN ICE:  - Helluva Boss/Hazbin Hotel fans
                              - Anti OC x CANON
-                            
+
+
+    
 
 
                                 •·.·''·.·• •·.·''·.·•·.·''·.·• •·.·''·.·
                                Im always C+H Feel free to cuddle right by me!
+                               Fastest Way for me to notice you is if you whipser to me! 
                                 
 <!---
 chomperoni/chomperoni is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
