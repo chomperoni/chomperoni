@@ -1,3 +1,5 @@
+Amy rose fictkin.
+
 ⋆·˚ ༘ * friend requests always on ⋆·˚ ༘ *
 
 ˏˋ°•*⁀➷⇢ ˗ˏˋ DNI: - Basic DNI critera (Racist, Homophobic, ect.)
@@ -14,6 +16,7 @@
 ˏˋ°•*⁀➷⇢ ˗ˏˋ INTERACT PLS!!:  -Sonic Fans
                                  - Silvamy Shippers
                                   - anyone i just wanna meet new ppl!1!
+                                  
 
 
     
@@ -22,6 +25,8 @@
                                 •·.·''·.·• •·.·''·.·•·.·''·.·• •·.·''·.·
                                Im always C+H Feel free to cuddle right by me!
                                Fastest Way for me to notice you is if you whipser to me! 
+
+
                                 
 <!---
 chomperoni/chomperoni is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
