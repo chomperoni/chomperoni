@@ -1,3 +1,5 @@
+⋆·˚ ༘ * friend requests always on ⋆·˚ ༘ *
+
 ˏˋ°•*⁀➷⇢ ˗ˏˋ DNI: - Basic DNI critera (Racist, Homophobic, ect.)
                      -  Alfreds Playhouse Fans
                        -  Proship
