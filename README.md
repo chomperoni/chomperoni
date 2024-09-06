@@ -7,6 +7,11 @@
                           
 ˏˋ°•*⁀➷⇢ ˗ˏˋ THIN ICE:  - Helluva Boss/Hazbin Hotel fans
                              - Anti OC x CANON
+                               - Sonadow Shippers
+
+ˏˋ°•*⁀➷⇢ ˗ˏˋ INTERACT PLS!!:  -Sonic Fans
+                                 - Silvamy Shippers
+                                  - anyone i just wanna meet new ppl!1!
 
 
     
