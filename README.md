@@ -1,4 +1,4 @@
-Amy rose fictkin.
+Amy rose fictkin + #1 Silvamy Lover
 
 ⋆·˚ ༘ * friend requests always on ⋆·˚ ༘ *
 
@@ -11,12 +11,15 @@ Amy rose fictkin.
                           
 ˏˋ°•*⁀➷⇢ ˗ˏˋ THIN ICE:  - Helluva Boss/Hazbin Hotel fans
                              - Anti OC x CANON
-                               - Sonadow Shippers
+                               - Sonadow Shippers who think every other ship sucks... D:
 
 ˏˋ°•*⁀➷⇢ ˗ˏˋ INTERACT PLS!!:  -Sonic Fans
                                  - Silvamy Shippers
                                   - anyone i just wanna meet new ppl!1!
-                                  
+
+
+
+                  
 
 
     
