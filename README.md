@@ -15,7 +15,8 @@ Amy rose fictkin + #1 Silvamy Lover
 
 ˏˋ°•*⁀➷⇢ ˗ˏˋ INTERACT PLS!!:  -Sonic Fans
                                  - Silvamy Shippers
-                                  - anyone i just wanna meet new ppl!1!
+                                  -Sonknux Shippers
+                                   - anyone i just wanna meet new ppl!1!
 
 
 
