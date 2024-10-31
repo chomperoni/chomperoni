@@ -1,4 +1,4 @@
-im 15 and i LOVEEE MY BF!!!
+im 4teen and i LOVEEE MY BF!!!
 
 Amy rose fictkin + #1 Silvamy Lover
 
