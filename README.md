@@ -1,4 +1,4 @@
-DONT whipser me if ur going to tell me to kms for what I like, its a waste of time. >->
+im 15 and i LOVEEE MY BF!!!
 
 Amy rose fictkin + #1 Silvamy Lover
 
@@ -10,7 +10,7 @@ Amy rose fictkin + #1 Silvamy Lover
                         -  Zoophiles
                           - Super Religous + Obsessed with polotics.
                             - If you shame others for what they ship.
-                             
+                              - Under 10
                           
 ˏˋ°•*⁀➷⇢ ˗ˏˋ THIN ICE:  - Helluva Boss/Hazbin Hotel fans
                              - Anti OC x CANON
