@@ -21,7 +21,7 @@ DONT take HEAVY inspo/steal my skins plss >_>
                                - Venting without asking first
                                  - Shaming typing quirks.
 
-ˏˋ°•*⁀➷⇢ ˗ˏˋ INTERACT PLS!!:  -Sonic Fans
+ˏˋ°•*⁀➷⇢ ˗ˏˋ INTERACT PLS!!:  -Sonic Fans -Teen Titans Enjoyers
                                  - Silvamy Shippers
                                   -Sonknux Shippers
                                   -Sonic.exe TD players
