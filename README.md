@@ -1,4 +1,4 @@
-im 4teen and i LOVEEE MY BF!!!
+im fifteen and i LOVEEE MY BF!!!
 
 Amy rose fictkin + #1 Silvamy Lover
 DONT take HEAVY inspo/steal my skins plss >_>
