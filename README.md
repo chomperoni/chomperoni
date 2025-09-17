@@ -5,7 +5,7 @@ DONT take HEAVY inspo/steal my skins plss >_>
 
 ⋆·˚ ༘ * my friend requests always on ⋆·˚ ༘ *
 
-FINISHED MY NEW STRAWPAGE!! :) https://chomperrrr.straw.page/
+(CURENTLY WORKING ON A NEW STRAWPAGE, THIS ONE IS A PLACEHOLDER) https://chomperrrr.straw.page/
 
 
 
