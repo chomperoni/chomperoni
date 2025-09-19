@@ -1,4 +1,6 @@
-im fifteen and i go bye any/all pronouns!!
+im fifteen and i go by any/all pronouns!!
+
+i also cant spell anything right apparently SO 
 
 Amy AND Silverfictkin + #1 Silvamy Lover
 DONT take HEAVY inspo/steal my skins plss >_>
