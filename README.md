@@ -1,6 +1,6 @@
-im fifteen and i LOVEEE MY BF!!!
+im fifteen and i go bye any/all pronouns!!
 
-Amy rose fictkin + #1 Silvamy Lover
+Amy AND Silverfictkin + #1 Silvamy Lover
 DONT take HEAVY inspo/steal my skins plss >_>
 
 ⋆·˚ ༘ * my friend requests are always on ⋆·˚ ༘ *
