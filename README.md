@@ -3,10 +3,7 @@
 (CURENTLY WORKING ON A NEW STRAWPAGE, THIS ONE IS A PLACEHOLDER) https://chomperrrr.straw.page/
 
 
-                     ------
-
-                     
-⋆·˚ ༘ * my friend requests are always on :D, and you can always cuddle by me, even if i dont have you friended! ⋆·˚ ༘ *
+    
 
 
 
@@ -20,3 +17,4 @@
                                 •·.·''·.·• •·.·''·.·•·.·''·.·• •·.·''·.·
                                Im always C+H Feel free to cuddle right by me!
                                Fastest Way for me to notice you is if you whipser to me! 
+                                My Friend Requests are ALWAYS ON. I might ignore it if I havent see you before.
