@@ -2,10 +2,10 @@ im fifteen and i go by any/all pronouns!!
 
 i also cant spell anything right apparently SO 
 
-Amy AND Silverfictkin + #1 Silvamy Lover
+Amy AND Silver fictkin + #1 Silvamy Lover
 DONT take HEAVY inspo/steal my skins plss >_>
 
-⋆·˚ ༘ * my friend requests are always on ⋆·˚ ༘ *
+⋆·˚ ༘ * my friend requests are always on :D ⋆·˚ ༘ *
 
 (CURENTLY WORKING ON A NEW STRAWPAGE, THIS ONE IS A PLACEHOLDER) https://chomperrrr.straw.page/
 
