@@ -1,8 +1,6 @@
-im fifteen and i go by any/all pronouns!!
+#1 Silvamy Fan that can never spell anything right reward goes 2 ME !!
 
-i also cant spell anything right apparently SO 
-
-Amy AND Silver fictkin + #1 Silvamy Lover
+Amy AND Silver fictkin wow ok
 DONT take HEAVY inspo/steal my skins plss >_>
 
 ⋆·˚ ༘ * my friend requests are always on :D ⋆·˚ ༘ *
