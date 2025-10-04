@@ -17,4 +17,5 @@
                                 •·.·''·.·• •·.·''·.·•·.·''·.·• •·.·''·.·
                                Im always C+H Feel free to cuddle right by me!
                                Fastest Way for me to notice you is if you whipser to me! 
-                                My Friend Requests are ALWAYS ON. I might ignore it if I havent see you before.
+                               My Friend Requests are ALWAYS ON. I might ignore it if I havent see you before.
+                               If I ever unadd you, i most likey have a reason for it. (unless im clearing up my list, but ill only unadd inactive people)
