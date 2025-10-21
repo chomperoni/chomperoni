@@ -1,7 +1,7 @@
 #1 Silvamy Fan that can never spell anything right reward goes 2 ME !!
 i also like shadilver and shadamy!! or poly shadsilvamy!! its peak!! 
 
-dni is in strawpage if you wanted to look at it: https://chomperrrr.straw.page/
+dni is in strawpage if you wanted to look at it: https://chomperoni.straw.page/
 
 
     
