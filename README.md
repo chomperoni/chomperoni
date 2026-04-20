@@ -1,5 +1,4 @@
-#1 Silvamy Fan that can never spell anything right reward goes 2 ME !!
-i also LOVEEE shadilver and  like shadamy!! or poly shadsilvamy!! its peak!! 
+#1 Silvamy Fan that struggles spell anything right reward goes 2 ME !!
 
 dni is in strawpage if you wanted to look at it: https://chomperoni.straw.page/
 
