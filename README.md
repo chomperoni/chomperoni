@@ -5,7 +5,11 @@ https://chomperoni.straw.page/ - check strawpage for a little about me + my dni 
 
 https://chomperoni.atabook.org/ - write stuff on my ata, im desperate for social interaction lol
 
-my github is a wip - come back later to see if i change it lol
+https://en.pronouns.page/@Cho.mp - collect my genders or somthing like that lol
+
+https://guns.lol/chomperoni - ummm most of my links are here. yeah.
+
+everything here is a wip - come back later to see if i change it lol
 
 
 
