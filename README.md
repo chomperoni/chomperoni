@@ -7,7 +7,7 @@
 
 [atabook](https://chomperoni.atabook.org/) - [pronouns.page](https://en.pronouns.page/@Cho.mp) - [guns.lol](https://guns.lol/chomperoni)
 
-[sllver.straw.page](https://chomperoni.straw.page/) - 2nd, more simple, non ponytown strawpage.
+[/sllver.straw.page](https://sllver.straw.page/) )- 2nd, more simple, non ponytown strawpage.
 
                    
 ^_^
