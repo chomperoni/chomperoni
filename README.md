@@ -1,17 +1,16 @@
 
-<img width="350" height="350" alt="image" src="https://github.com/user-attachments/assets/c71f17fb-0007-4cd2-b42c-b06636291872" />
+   <img width="350" height="350" alt="image" src="https://github.com/user-attachments/assets/c71f17fb-0007-4cd2-b42c-b06636291872" />
 
-https://chomperoni.straw.page/ - check strawpage for a little about me + my dni n stuff
-
-https://chomperoni.atabook.org/ - write stuff on my ata, im desperate for social interaction lol
-
-https://en.pronouns.page/@Cho.mp - collect my genders or somthing like that lol
-
-https://guns.lol/chomperoni - ummm most of my links are here. yeah.
-
-everything here is a wip - come back later to see if i change it lol
+[chomperoni.straw.page](https://chomperoni.straw.page/) - check strawpage for a little about me + my dni n stuff
 
 
+
+[atabook](https://chomperoni.atabook.org/) - [pronouns.page](https://en.pronouns.page/@Cho.mp) - [guns.lol](https://guns.lol/chomperoni)
+
+[sllver.straw.page](https://chomperoni.straw.page/) - 2nd, more simple, non ponytown strawpage.
+
+                   
+^_^
 
 
                
