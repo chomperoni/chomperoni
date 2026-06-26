@@ -8,7 +8,6 @@
 [atabook](https://chomperoni.atabook.org/) - [pronouns.page](https://en.pronouns.page/@Cho.mp) - [guns.lol](https://guns.lol/chomperoni)
 
 [sllver.straw.page](https://sllver.straw.page/) )- 2nd, more simple, non ponytown strawpage.
-[ananaspitaya.straw.page/](https://ananaspitaya.straw.page/) cooki run strawpage
 ^_^
 
 
